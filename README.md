@@ -1,2 +1,0 @@
-# practice
-Vedant Naik CAD
